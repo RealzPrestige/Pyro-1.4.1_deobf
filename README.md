@@ -7,7 +7,5 @@
 
 - got bored ye idk
 - not buildable
-- gui is trash ez remove idiots
-- ye ur mum fat bitch
 
 ##
